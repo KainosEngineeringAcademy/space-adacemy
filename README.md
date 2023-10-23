@@ -1,6 +1,6 @@
 # Space Adacemy 2000
 
-![alt text](8eb0263e-2527-4a03-a353-b0a23012ea18.jpeg "Space academy landscape")
+![alt text](space-academy.jpeg "Space academy landscape")
 
 The first thing that struck me when I arrived at the space academy was the sheer size of it. It was a massive complex of buildings, domes, hangars, and launch pads, sprawled across a barren landscape. The academy was located on the moon, the only place where humans could train for space exploration without the limitations of gravity and atmosphere.
 
