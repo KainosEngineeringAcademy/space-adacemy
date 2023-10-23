@@ -1,5 +1,7 @@
 # Space Adacemy 2000
 
+![alt text](8eb0263e-2527-4a03-a353-b0a23012ea18.jpeg "Space academy landscape")
+
 The first thing that struck me when I arrived at the space academy was the sheer size of it. It was a massive complex of buildings, domes, hangars, and launch pads, sprawled across a barren landscape. The academy was located on the moon, the only place where humans could train for space exploration without the limitations of gravity and atmosphere.
 
 I had always dreamed of becoming an astronaut, ever since I was a little kid watching the stars from my bedroom window. I had worked hard to get accepted into the academy, passing the rigorous exams and physical tests. I knew it was a once-in-a-lifetime opportunity, and I was determined to make the most of it.
