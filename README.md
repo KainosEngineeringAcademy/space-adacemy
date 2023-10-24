@@ -66,7 +66,7 @@ I could hear a faint sound in the distance. As time passed, it grew louder.
 
 As it spoke more and more, I came to a realisation; this was not a lizard-like creature; this was MARK ZUCKERBERG.
 
-[![Zucky](images/mark_zucky.jpeg "Mark Zucky")]
+![Zucky](images/mark_zucky.jpeg "Mark Zucky")
 
 "Exposition dump!" shouted Alex.
 Mark Zuckerberg is the CEO of Meta, a once glorious company which promptly ended in 2043 during World War Four.
