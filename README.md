@@ -33,3 +33,15 @@ She let go of me and gestured to the room.
 "This is our home for the next four years," she said. "It's not much, but it's cozy enough."
 
 The room was small and simple, with two beds, two desks, two closets, and a window that looked out at the gray lunar surface.
+
+Zara's warm and friendly demeanor made me feel more at ease in this unfamiliar environment. I appreciated her kind gesture, and her words about feeling lonely resonated with me.
+
+"How was your journey here, Alex?" Zara asked, her eyes showing genuine curiosity.
+
+I took a deep breath, recalling the excitement and the sense of adventure that had initially carried me through the journey to the space academy. "It was a mix of emotions," I admitted. "The anticipation and dreams of being here kept me going. But saying goodbye to my family was tough. We had a farewell dinner, and it was emotional."
+
+Zara nodded empathetically, understanding the bittersweet nature of such farewells. "I can imagine. Leaving behind the familiar and stepping into this new world is challenging. But it's also an incredible opportunity, isn't it?"
+
+I smiled, appreciating her positive outlook. "You're absolutely right. It's a once-in-a-lifetime chance, and I'm determined to make the most of it."
+
+We stood together by the window, gazing out at the desolate lunar landscape. The view was both awe-inspiring and humbling. As we watched the Earth slowly rise on the horizon, I couldn't help but feel a sense of wonder and excitement for the journey that lay ahead.
