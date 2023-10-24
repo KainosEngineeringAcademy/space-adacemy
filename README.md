@@ -68,11 +68,17 @@ As it spoke more and more, I came to a realisation; this was not a lizard-like c
 
 ![Zucky](images/mark_zucky.jpeg "Mark Zucky")
 
-"Exposition dump!" shouted Alex.
+"Exposition dump!" shouted Zara.
 Mark Zuckerberg is the CEO of Meta, a once glorious company which promptly ended in 2043 during World War Four.
 During the war, Mark Zuckerberg (or "Zucky" as he is so affectionally called) gained immortality, leaving him the sole survivor out of all of the Meta employees.
 Since he has no money, Zucky has spent the last three years trying to gain back his wealth. His newest escapade is Franta, a knock-off version of the famous Fanta soft drink, which also went defunct during World War Four.
 
 "BLACKCURRANT FRANTA!!!" Zucky so excitedly shouted.
 
-"Wow, I can't believe they've added a fourth flavour to the Franta roster" I said to Alex.
+"Wow, I can't believe they've added a fourth flavour to the Franta roster" I said to Zara.
+
+After discovering Zucky's newest marketing ploy, Zara and I returned to the Academy to continue our arduous training.
+
+After a long, hard day of arduous training, I entered my shared room and saw Zara already sleeping in her small bed. Quietly, I paced across the room and gazed out across the grey, empty, lunar landscape and allowed the bright darkness to fill my mind, preparing me for another restless night in space. I jolted out of my disassociative state when Zara let out a small snore, and took this as an opportunity to lie down in my simple, vaguely uncomfortable bed and fall into a deep slumber. 
+
+A quiet, repetitive beeping roused me from my deep sleep. Drearily, I wiped my eyes and reached to disable my alarm, but after some fumbling I noticed the noise wasn't coming from my alarm clock, and that Zara wasn't in her bed. I suddenly became aware of the situation around me. The alarm wasn't from the alarm clock, but from the Space Academy's central alarm system. Outside my window, it seemed every single person and robot at this academy were frantically chasing around in some attempt to solve the issue, and yet I had no clue what was happening.
