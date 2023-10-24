@@ -57,3 +57,22 @@ The competition was fierce, but our creation wowed the judges with its innovativ
 Our success, however, was not without challenges. The demanding coursework and intense training pushed us to our limits. There were moments of doubt and exhaustion, but with each hurdle, our bond grew stronger. We became each other's pillars of support, celebrating triumphs and consoling each other in setbacks.
 
 The journey through the space academy wasn't just about conquering the cosmos; it was about conquering ourselves. And as Zara and I stood under the lunar sky, gazing at Earth from our celestial vantage point, we knew that our dreams of becoming astronauts were not just aspirations but destined realities. The space academy had forged not only skilled spacefarers but an unbreakable friendship that would endure the vastness of the universe.
+
+I could hear a faint sound in the distance. As time passed, it grew louder.
+
+"BREAKING NEWS!!!!" exclaimed a rather lizard-like creature that was rapidly approaching Alex.
+
+"HAVE YOU HEARD THE NEWS????" it said.
+
+As it spoke more and more, I came to a realisation; this was not a lizard-like creature; this was MARK ZUCKERBERG.
+
+[![Zucky](images/mark_zucky.jpeg "Mark Zucky")]
+
+"Exposition dump!" shouted Alex.
+Mark Zuckerberg is the CEO of Meta, a once glorious company which promptly ended in 2043 during World War Four.
+During the war, Mark Zuckerberg (or "Zucky" as he is so affectionally called) gained immortality, leaving him the sole survivor out of all of the Meta employees.
+Since he has no money, Zucky has spent the last three years trying to gain back his wealth. His newest escapade is Franta, a knock-off version of the famous Fanta soft drink, which also went defunct during World War Four.
+
+"BLACKCURRANT FRANTA!!!" Zucky so excitedly shouted.
+
+"Wow, I can't believe they've added a fourth flavour to the Franta roster" I said to Alex.
