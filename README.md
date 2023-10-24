@@ -32,4 +32,9 @@ She let go of me and gestured to the room.
 
 "This is our home for the next four years," she said. "It's not much, but it's cozy enough."
 
-The room was small and simple, with two beds, two desks, two closets, and a window that looked out at the gray lunar surface.
+The room was small and simple, with two beds, two desks, two closets, and a window that looked out at the grey lunar surface.
+
+After a long, hard day, I entered my shared room and saw Zara already sleeping in my small bed. Quietly, I paced across the room and gazed out across the grey, empty, lunar landscape and allowed the bright darkness to fill my mind, preparing me for another restless night in space. I jolted out of my disassociative state when Zara let out a small snore, and took this as an opportunity to lie down in my simple, vaguely uncomfortable bed and fall into a deep slumber. 
+
+A quiet, repetitive beeping roused me from my deep sleep. Drearily, I wiped my eyes and reached to disable my alarm, but after some fumbling I noticed the noise wasn't coming from my alarm clock, and that Zara wasn't in her bed. I suddenly became aware of the situation around me. The alarm wasn't from the alarm clock, but from the Space Academy's central alarm system. Outside my window, it seemed every single person and robot at this academy were frantically chasing around in some attempt to solve the issue, and yet I had no clue what was happening.
+
