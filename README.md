@@ -32,6 +32,32 @@ She let go of me and gestured to the room.
 
 "This is our home for the next four years," she said. "It's not much, but it's cozy enough."
 
+The room was small and simple, with two beds, two desks, two closets, and a window that looked out at the gray lunar surface.
+
+Zara's warm and friendly demeanor made me feel more at ease in this unfamiliar environment. I appreciated her kind gesture, and her words about feeling lonely resonated with me.
+
+"How was your journey here, Alex?" Zara asked, her eyes showing genuine curiosity.
+
+I took a deep breath, recalling the excitement and the sense of adventure that had initially carried me through the journey to the space academy. "It was a mix of emotions," I admitted. "The anticipation and dreams of being here kept me going. But saying goodbye to my family was tough. We had a farewell dinner, and it was emotional."
+
+Zara nodded empathetically, understanding the bittersweet nature of such farewells. "I can imagine. Leaving behind the familiar and stepping into this new world is challenging. But it's also an incredible opportunity, isn't it?"
+
+I smiled, appreciating her positive outlook. "You're absolutely right. It's a once-in-a-lifetime chance, and I'm determined to make the most of it."
+
+We stood together by the window, gazing out at the desolate lunar landscape. The view was both awe-inspiring and humbling. As we watched the Earth slowly rise on the horizon, I couldn't help but feel a sense of wonder and excitement for the journey that lay ahead.
+
+The next few weeks at the space academy were a whirlwind of excitement and challenges. Zara and I quickly became inseparable, navigating the complex schedule of classes, simulations, and zero-gravity training together. Our friendship blossomed under the lunar sky, as we shared dreams of exploring distant planets and marvelled at Earth hanging like a delicate blue jewel in the vastness of space.
+
+One day, we were assigned a joint project to design a futuristic spacecraft. Armed with enthusiasm and a plethora of ideas, we transformed our dorm room into a makeshift mission control platform. Posters of constellations adorned the walls, and our desks were littered with blueprints and holographic projections. Late into the night, fuelled by a combination of passion and lunar coffee, we fine-tuned our concept, merging practical engineering with our shared sense of wonder.
+
+As the academy geared up for a grand interstellar competition, our spacecraft, christened the "Stellar Voyager," emerged as a front-runner. The final showdown unfolded in a colossal hangar, where prototypes from various teams were showcased. The Stellar Voyager stood tall, sleek, and ready for its virtual journey through the cosmos.
+
+The competition was fierce, but our creation wowed the judges with its innovative design and sustainable propulsion system. Zara and I held our breath as the results were announced – victory! The cheers echoed through the lunar complex, and our fellow cadets hoisted us onto their shoulders in triumph.
+
+Our success, however, was not without challenges. The demanding coursework and intense training pushed us to our limits. There were moments of doubt and exhaustion, but with each hurdle, our bond grew stronger. We became each other's pillars of support, celebrating triumphs and consoling each other in setbacks.
+
+The journey through the space academy wasn't just about conquering the cosmos; it was about conquering ourselves. And as Zara and I stood under the lunar sky, gazing at Earth from our celestial vantage point, we knew that our dreams of becoming astronauts were not just aspirations but destined realities. The space academy had forged not only skilled spacefarers but an unbreakable friendship that would endure the vastness of the universe.
+
 The room was small and simple, with two beds, two desks, two closets, and a window that looked out at the grey lunar surface.
 
 After a long, hard day, I entered my shared room and saw Zara already sleeping in my small bed. Quietly, I paced across the room and gazed out across the grey, empty, lunar landscape and allowed the bright darkness to fill my mind, preparing me for another restless night in space. I jolted out of my disassociative state when Zara let out a small snore, and took this as an opportunity to lie down in my simple, vaguely uncomfortable bed and fall into a deep slumber. 
