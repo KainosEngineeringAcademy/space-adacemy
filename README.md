@@ -32,4 +32,4 @@ She let go of me and gestured to the room.
 
 "This is our home for the next four years," she said. "It's not much, but it's cozy enough."
 
-The room was small and simple, with two beds, two desks, two closets, and a window that looked out at the gray lunar surface.
+The room was small and simple, with two beds, two desks, two closets, and a window that looked out at the grey lunar surface.
