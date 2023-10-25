@@ -79,6 +79,10 @@ Since he has no money, Zucky has spent the last three years trying to gain back 
 
 After discovering Zucky's newest marketing ploy, Zara and I returned to the Academy to continue our arduous training.
 
-After a long, hard day of arduous training, I entered my shared room and saw Zara already sleeping in her small bed. Quietly, I paced across the room and gazed out across the grey, empty, lunar landscape and allowed the bright darkness to fill my mind, preparing me for another restless night in space. I jolted out of my disassociative state when Zara let out a small snore, and took this as an opportunity to lie down in my simple, vaguely uncomfortable bed and fall into a deep slumber. 
+After a long, hard day of arduous training, I entered my shared room and saw Zara already sleeping in her small bed. Quietly, I paced across the room and gazed out across the grey, empty, lunar landscape and allowed the bright darkness to fill my mind, preparing me for another restless night in space. I jolted out of my disassociative state when Zara let out a small snore, and took this as an opportunity to lie down in my simple, vaguely uncomfortable bed and fall into a deep slumber.
 
 A quiet, repetitive beeping roused me from my deep sleep. Drearily, I wiped my eyes and reached to disable my alarm, but after some fumbling I noticed the noise wasn't coming from my alarm clock, and that Zara wasn't in her bed. I suddenly became aware of the situation around me. The alarm wasn't from the alarm clock, but from the Space Academy's central alarm system. Outside my window, it seemed every single person and robot at this academy were frantically chasing around in some attempt to solve the issue, and yet I had no clue what was happening.
+
+I quickly got dressed and rushed out of the room, joining the chaotic scene in the corridors. The emergency lights cast an eerie glow as the academy's intercom blared urgent instructions for all cadets to gather at the central command center. Zara appeared beside me, her expression a mix of concern and confusion mirroring my own.
+
+We navigated through the hurried crowd and arrived at the command center, where holographic displays flickered with warnings and status updates. The academy's director, a stern-faced figure, stood at the front, addressing the assembled cadets.
