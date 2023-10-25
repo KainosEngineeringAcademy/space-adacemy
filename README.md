@@ -62,3 +62,21 @@ After a long, hard day, I entered my shared room and saw Zara already sleeping i
 
 A quiet, repetitive beeping roused me from my deep sleep. Drearily, I wiped my eyes and reached to disable my alarm, but after some fumbling I noticed the noise wasn't coming from my alarm clock, and that Zara wasn't in her bed. I suddenly became aware of the situation around me. The alarm wasn't from the alarm clock, but from the Space Academy's central alarm system. Outside my window, it seemed every single person and robot at this academy were frantically chasing around in some attempt to solve the issue, and yet I had no clue what was happening.
 
+I hurriedly tied my long, brown hair into a messy bun and slipped a baggy Academy hoodie, its grey being the same grey as the dusty lunar landscape outside. I pulled on my trainers and prepared to face the potentially catastrophic events outside the safe haven of my shared room. However, before I could leave the room, I heard a sharp--
+
+**KNOCK KNOCK**
+
+"Who's there?" I called out, longingly. I feared for my life. As soon as the words left my mouth, something slammed into the door and it came barrelling down onto the ground. A small yelp emitted from me, as two large armoured Academy Security Corps. members entered.
+
+"ALEX GRHAM?" one of the dark grey bodies called out. I nodded meekly, before they continued. "YOU ARE REQUIRED TO SERVE IN THE ARMED PROTECTION FORCES. YOUR DISORDERLY CONDUCT AND TARDINESS IN ATTENDING SERVICE TODAY WILL BE HELD AGAINST YOU. YOUR LIFE IS DISPOSABLE TO US." The booming words of the armoured creatures filled me with dread and fear. Disorderly conduct? Tardiness? Service?! I had no idea that I had to serve. I allowed them to grab me and drag me down to the Barracks to armour up. Even now, I still had no clue what the alarm blaring was.
+
+Soon, I was deposited into the barracks, the alarm's purpose still unknown to me. Angry employees shoved me around as I obtained the Academy standard armour and weapons, refusing to talk to me for my aforementioned 'crimes'. Eventually, I was shoved into a large crowd of other soldiers and forced to stand in line. I noticed that Zara was stood beside me.
+
+"Zara??" I called out. My Master Chief-style helmet muffled my voice, but Zara heard me nonetheless. 
+"Alex? Where have you been, loca?!" she shouted, flummoxed.  She looked disheveled inside her  armour.
+"What's happening, Zara?? I woke up and heard alarms!" I replied, fearfully.
+"The Zjierb are attacking us! In our academy contract we agreed to serve in any wars that affect or impact the colony, and the Zjierb are coming to colonise our colonies!" she replied, as though it was the simplest fact. After hearing this, it felt as though my life had imploded. The Zjierb were the most brutal race in Space, aside from the humans. Whatever they could get their tentacles on, they would steal from its inhabitants. We were doomed.
+
+As soon as this thought went through my head, a bright light filled my visor. Tens of thousands of shining lights filled the skies, and everyone began to run in fear. Missiles and laser bullets rained down on the moon, and nothing was shot back. Many perished at this moment, and in front of me I saw Zara crumble under the barrage of laser beams. I screamed in anguish. My best friend died before my eyes.
+
+The Zjierb had arrived, and we had no chance of surviving.
